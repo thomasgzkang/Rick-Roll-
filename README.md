@@ -1,2 +1,2 @@
-# cheat
-have a kiding with your friend
+# Rick Roll
+Rick Roll your horny friends
